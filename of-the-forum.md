@@ -1,0 +1,1 @@
+Fica eleito o foro da Comarca de Manaus/AM, com exclusão de qualquer outro, por mais privilegiado que seja, para dirimir qualquer controvérsia decorrente desta Política de Privacidade. 
