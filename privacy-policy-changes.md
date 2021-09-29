@@ -1,0 +1,3 @@
+Essa Política de Privacidade pode ser modificada e atualizada a qualquer momento, sempre que se fizer necessário. Qualquer alteração será imediatamente informada a você via notificação em tela (push), e-mail ou outro meio que garanta o pleno acesso ao novo conteúdo.
+
+A utilização do Aplicativo e da Plataforma após uma alteração na Política de Privacidade configura aceite tácito das novas condições.
