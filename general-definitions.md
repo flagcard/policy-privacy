@@ -1,5 +1,3 @@
-### 1. DEFINIÇÕES GERAIS
-
 Para facilitar o seu entendimento sobre como as suas informações são tratadas por nós, bem como propiciar a fácil compreensão das terminologias utilizadas nesta Política, considera-se:
 
 - **Usuário**: Toda pessoa física, capaz de exercer os direitos e deveres na ordem civil, maior de 18 (dezoito) anos completos, que utiliza os serviços prestados pela Flagcard por meio da plataforma online ou do aplicativo.
